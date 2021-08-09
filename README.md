@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Haddo69
 - 👀 I’m interested in cars
-- 🌱 I’m currently learning how to eat pizza without making my hands sirty
+- 🌱 I’m currently learning how to eat pizza without making my hands dirty
 - 💞️ I’m looking to collaborate with pizzahut
 - 📫 How to reach me: come to me lol
 
